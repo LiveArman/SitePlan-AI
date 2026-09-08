@@ -256,9 +256,9 @@ or someone who believes this idea has potential, get in touch.
 
 ### Contact
 
-**Email:** [YOUR EMAIL]
+**Email:** SitePlan@arman.bd
 
-**WhatsApp:** [YOUR WHATSAPP]
+**WhatsApp:** +8801974946747
 
 **Project Website:** https://plan.sites.bd
 
